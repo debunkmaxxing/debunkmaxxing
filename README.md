@@ -5,6 +5,7 @@
 marple she/they. i love debunk trio and state smp <br><br>
 c + h welcome anytime!! <br><br>
 pfp by furaisette on twitter ALL OTHER ART IS BY ME <br>
+LIVE LAUGH DEBUNK TRIO
 
 ![](https://files.catbox.moe/5zyg52.png)
 
