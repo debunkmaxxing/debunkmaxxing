@@ -1,6 +1,6 @@
 <div align="center"/>
 
-![](https://files.catbox.moe/blzngp.png)
+<img src="https://files.catbox.moe/blzngp.png" width="1000" height="1000">
 marple she/they. i love debunk trio and state smp <br>
 c + h welcome anytime!! <br><br>
 pfp by furaisette on twitter ALL OTHER ART IS BY ME <br>
